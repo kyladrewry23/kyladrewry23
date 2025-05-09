@@ -2,7 +2,7 @@
 
 🏗️ **Water Resources Engineer | Environmental Data Scientist | Science Communicator**  
 🎓 PhD in Environmental Engineering (June 2025)  
-📍 Based in Boston, MA | 🌐 [LinkedIn](https://www.linkedin.com/in/kyladrewry)
+📍 Based in Boston, MA 
 
 ---
 
